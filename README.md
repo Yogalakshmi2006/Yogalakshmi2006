@@ -86,8 +86,8 @@ To become a skilled Embedded Engineer and build intelligent hardware-software in
 
 ## 📬 Connect With Me
 
-- 💼 LinkedIn: (Add your link here)
-- 📧 Email: (Add your email here)
+- 💼 LinkedIn: (https://www.linkedin.com/in/yogalakshmi-r-m-975468342/)
+- 📧 Email: (240372.ec@rmkec.ac.in)
 
 ---
 
